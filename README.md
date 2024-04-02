@@ -2,7 +2,7 @@
 - 👀 I’m interested in html 5
 - 🌱 I’m currently learning programming and english
 - 💞️ I’m looking to collaborate on ...(no)
-- 📫 How to reach me for https://5trom-4046.xlog.app/
+- 📫 How to reach me with https://5trom-4046.xlog.app/
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
